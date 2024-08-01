@@ -1,3 +1,3 @@
-### Colecione memórias e acumule sorrisos. Todo o resto é passageiro.💙
+### Boca fechada, sonhos realizados. É assim que funciona!🤫
 
-### @Tayllor012 🤍
+### @Tayllor012 💸🥱
