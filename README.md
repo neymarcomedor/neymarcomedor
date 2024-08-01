@@ -1,1 +1,1 @@
-"A verdadeira riqueza está nas experiências que acumulamos e não nos bens materiais que possuímos'.
+Colecione memórias e acumule sorrisos. Todo o resto é passageiro.
